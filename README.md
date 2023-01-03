@@ -1,1 +1,0 @@
-# simple-the-news-papper
